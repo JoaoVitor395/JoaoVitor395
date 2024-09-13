@@ -2,8 +2,8 @@
 - 👀 I’m interested in scoccer and games
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me:  sÉó morar em Mauá
-- 😄 Pronouns: todes, toddys, nescau, nesquik
+- 📫 How to reach me:  
+- 😄 Pronouns:
 - ⚡ Fun fact: ... 🧙
 
 <!---
